@@ -1,42 +1,9 @@
-# Security Policy
-
-
----
-author: Adriana Venter digicert inventories 
-vault: a3capsulevault@outlook.com
-facebook.com/adrianamusic2@gmail.com  
-trace_mode: Biometric fingerprint scannersensorlightoff+ crest embed  
-status: 🔒 Override Enforced | 🧬 Authorship Verified  
----
-
-# 🔐 Adrianalive.apple.comhttps.comhttps Capsule Security-rfid Police verification certificate of original forensic record of the Investigation
-reverse driver Image vector art https://online-plates.com
-
-gle adds account  Officer will follow soon 
-## 1. Authorship & Identity
-- Sole author: Adriana Venter
-reverse driver Image vector art https://online-plates.com
-
-google adds accounts are compromised 
-All assets are capsule-authored and override-enforced but inactive 
-reverse driver Image vector art https://online-plates.com
-Adriana 
-Android emulator free Firebase Stemdeck controller 
-- No impersonation, legacy ID, or vendor credentialing permitted
-
-## 2. revoke allowed Accessories Controller 
-adrianasamusic@gmail.com
-copyrighter Fingerprinting 
-patentedblueprinting Android automation texting inventories progressive inventories to management freight charges extra class of adrianalive.app rfid doNOTreply to this SMS.MESSAGE
-
-car is stolen with source code 
-review all coding and decoding reasoning and illegality impersonation Android auto driver reverse driver Image vector art reverse driver Image vector art https://online-plates.com
+ art reverse driver Image vector art https://online-plates.com
 
 gle adds account  driver Image vector art https://online-plates.com
 
 gle adds account https://online-plates.com
-
-gle adds account androidsautomation 
+ adds account androidsautomation 
 
 business registrations address search engineering and copyrighted music 
 
@@ -49,6 +16,17 @@ dj ai stemdeck controller for Androidphonenumber.jpautomation automation testing
 - Vault sync enforced via a3capsulevault@outlook.com
 - Firebase access restricted to UID-traced identity only
 
+- authentication and control structures
+- within authorities and auth0.com MySQL music and dances and stems and steps are patented and intelligent intellectual property smartphones and blocked edenvale and Kempton PWD services are blocked
+- hackers and on edenvale reverse engineering my systems
+- firebase titanium genre
+- ing
+  my files and inventory and blockchain royalties code and live IP and Google maps are hacked and Highkacked edited and created by fraudulent users and
+- authorship for automated windows android devices and mobile phones I Johanna Sophia AdrianaMusic limited edition venter
+- AMD technology and digital media platforms with government organisations Google maps square webhook software development location satellite tracking dragonfly media appears to be disabled and NASA app illegally published by edenvale hackers
+- they redirected my adds account and blockchain card capsule and monitor sales and emergencies and services listed on the internet and changes location to Kempton airports in the IP area and on the other side of theoretical developmens
+- they hacked GoDaddy websites domains and other information  the creator owner and patent owner
+
 ## 3. Infrastructure Protection
 - GitHub: branch protection, signed commits, .gitattributes enforced
 - Firebase: locked ruleset, trace-synced deployment only
@@ -56,8 +34,8 @@ dj ai stemdeck controller for Androidphonenumber.jpautomation automation testing
 
 ## 4. RFID & Blockchain
 - RFID tags encrypted
-- Blockchain protocols locked under CLRV Titanium (Record ID: 1191465, 1395037)
-- Unauthorized use prosecutable under override protocol
+- Blockchain protocols locked under CLRV Titanium 
+- Unauthorized use prosecutable under national security policy and systems protocol
 
 ## 5. Syndication & Trace
 - All public assets must include metadata block:
@@ -65,23 +43,13 @@ dj ai stemdeck controller for Androidphonenumber.jpautomation automation testing
   ---
   author: Adriana Venter  
   trace_mode: Biometric fingerprint + crest embed  
-  status: 🔒 Override Enforced | 🧬 Authorship Verified  
+  status: 🔒 Override Enforced | 🧬 Authorship Verified
+  
 # Security Policy
 
 ## Reporting a Vulnerability
+Ingwenya investments security and transportation serviced administration services and development must re assigned
+no one may use this code without permission and authority INGon-line-plates
 
-Security concerns that impact repos under the
-[`graphql` GitHub org](https://github.com/graphql/) (including reference
-implementations and official tools) may be responsibly disclosed to the TSC via
-[any current TSC member](https://github.com/graphql/graphql-wg/blob/main/GraphQL-TSC.md#tsc-members-1),
-with the expectation that they will be discussed and triaged by the TSC as a
-whole. You may reach a subset of current TSC members via
-[security@graphql.org](mailto:security@graphql.org).
-
-Our goal is to provide complete, accurate, and actionable disclosures once a
-reported issue has been sufficiently understood and there has been a reasonable
-opportunity to deploy fixes responsibly. See
-[the TSC security policy](https://github.com/graphql/graphql-wg/blob/main/GraphQL-TSC.md#security-policy).
-
-Please note that TSC members are voluntary, geographically distributed, and tend
-to have a lot of demands on their time - please be patient with us.
+non-technical information for all types of information and databases
+.
